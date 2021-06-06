@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @xxmadodin
+- 👀 I’m interested in machine learning/ artificial intelligence stuffs and also in automating the things.
+- 🌱 I’m currently learning blockchain development.
+- 📫 to reach me, mail : sknk08837@gmail.com
